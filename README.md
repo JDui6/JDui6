@@ -8,3 +8,4 @@
 JDui6/JDui6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+💓💎![Screenshot_2023-08-04-16-26-40-942_com pixticle bokuboku](https://github.com/JDui6/JDui6/assets/141504171/2e7bb263-b7c1-48a9-b639-39c9d48c5b44)
